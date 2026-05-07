@@ -1,4 +1,4 @@
-
+Experience ink game like never before with ink game no-ban Script, the #1 Script. Includes auto-upgrade and one-hit kill for unbeatable performance.
 
 
 
